@@ -10,4 +10,4 @@
 
 本平台专注于收集高质量国产麻豆类影视资源，支持高清播放，分类清晰，资源更新快。所有影片免费播放，无需注册登录，真正做到即点即播，方便快捷。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but1 ）</span>
